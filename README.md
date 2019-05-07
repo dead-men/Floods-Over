@@ -1,6 +1,8 @@
-Come on back to Johnstown!  
-  
-## Dead Men trip 2019
+# The Flood's Over!
 
-## When  
+## Dead Men TRIP 2019
+
+## WHEN  
 ### Dates: August 30, 2019 to September 2, 2019
+
+## WHERE
